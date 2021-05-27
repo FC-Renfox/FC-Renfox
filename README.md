@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @FC-Renfox
 - 👀 I’m the owner of FiveM Customs
-- 📫 discord.gg/WGMrjY3 
+- 📫 http://www.fivemcustoms.com/home/
